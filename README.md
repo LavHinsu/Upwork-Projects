@@ -1,5 +1,5 @@
 # Upwork-Projects
-Links for all upwork projects that i did for clients. (portfolio)
+Links for all upwork projects that i completed for upwork clients.
 
 look for all projects in my profile, here:- https://www.upwork.com/freelancers/~01b9b67aaef002fa8d
 
